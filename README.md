@@ -1,3 +1,2 @@
-## @99561A 
-## Fallsburg Comets Robotics Team
-## Team Name: Ambush | Bot name: Champions' Edge
+## @hxris4567 
+## Yugoslav guy, into programming and tech, among other things
